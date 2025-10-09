@@ -1,5 +1,7 @@
 <img width="720" height="926" alt="Screenshot_20251003-214349" src="https://github.com/user-attachments/assets/9e815a45-2354-4252-906d-f689271b627b" />
-# Grahh-i-m-gonna-bust-
+
+
+
 Hi again soo uh yea i like forsaken and dandys world ok and die of death
 call me chips or cheese;1
 on pt all day!!!!!:DD
