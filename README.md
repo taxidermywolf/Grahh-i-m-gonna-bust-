@@ -10,6 +10,11 @@ i'm Nice and mean what the fuck!!:0
 
 
 
-<img width="688" height="543"alt="Screenshot_20251020-195346" src="https://github.com/user-attachments/assets/244364ef-50c5-460d-89db-10efacca7a69" />
+
+
+
+
+<img width="688" height="547" alt="Screenshot_20251020-195346" src="https://github.com/user-attachments/assets/98c39fce-7008-439e-b476-cc20f18679fe" />
+
 
 
