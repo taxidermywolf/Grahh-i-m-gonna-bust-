@@ -20,4 +20,3 @@ i'm Nice and mean what the fuck!!:0
 
 I FORGOT TO COLOUR ONE OF THHE LEGS FUCK TS😣
 
-and im to lazy to fix it ugh 🫩✌️
