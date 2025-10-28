@@ -1,4 +1,4 @@
-i'm Nice and mean what the fuck!!:0
+hi i need friens
 
 
 
@@ -14,9 +14,10 @@ i'm Nice and mean what the fuck!!:0
 
 
 
-<img width="688" height="547" alt="Screenshot_20251020-195346" src="https://github.com/user-attachments/assets/98c39fce-7008-439e-b476-cc20f18679fe" />
+<img width="720" height="642" alt="Screenshot_20251027-200447" src="https://github.com/user-attachments/assets/150d2b85-c59d-44f7-9e0a-c564a00c3242" />
 
 
 
-I FORGOT TO COLOUR ONE OF THHE LEGS FUCK TS😣
+
+yeeyeye !!! *busts*
 
