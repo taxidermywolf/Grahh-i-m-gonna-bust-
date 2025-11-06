@@ -1,23 +1,24 @@
-hi i need friens
+hi im sorrowfu1fangz andd i likee drawwing 
+
+1x is so me 🫩
+
+
+lalala i love my friens:] 
 
 
 
 
 
 
-- cool art i made
+[🎉 ; I CAN MAKE U FEEL ALIVEE] whispers
+growls.. fang y-you dont wanna make me mad..
 
 
 
 
+interaction is hvy enc :1 
 
 
+#iove1xsoomuchitsnotevenfunnyhessomewtf
 
-
-<img width="720" height="642" alt="Screenshot_20251027-200447" src="https://github.com/user-attachments/assets/150d2b85-c59d-44f7-9e0a-c564a00c3242" />
-
-
-
-
-yeeyeye !!! *busts*
-
+i wuv 1x guys
